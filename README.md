@@ -1,0 +1,1 @@
+# Hackintosh-High-Sierra-i5-10400F-B460-GTX1050
